@@ -1,2 +1,2 @@
-Dit is een denkbeeldige handleiding voor een tandenborstel.
+Dit is een ECHTE handleiding voor een tandenborstel.
 Let HEEL GOED op! De tandenborstel is veilig voor kinderen, volwassenen en huisdieren. Maar niet voor leeuwen. En al helemaal niet voor bomen, Edgar!
