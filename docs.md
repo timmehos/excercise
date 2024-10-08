@@ -1,2 +1,2 @@
-Dit was een denkbeeldige handleiding voor een BELACHELIJKE tandenborstel.
+Niemand weet dat ik repelsteeltje heet. 
 Let op, jongens en meisjes! De tandenborstel is veilig voor kinderen, volwassenen en huisdieren. Maar niet voor leeuwen.
